@@ -1,0 +1,1 @@
+Buatnya sekali lihat aowkokaokoak
